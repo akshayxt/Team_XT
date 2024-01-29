@@ -1,5 +1,5 @@
  ㅤ ㅤ ㅤㅤ[![GIF](https://github.com/Akshayxt/Akshayxt/blob/main/Akshayxt.gif)](https://github.com/Akshayxt)
-   [![𝐓𝐄𝐀𝐌 𝐃𝐀𝐗𝐗](https://github-stats-alpha.vercel.app/api?username=Akshayxt "Akshayxt")](https://github-stats-alpha.vercel.app/api?username=Akshayxt "Akshayxt")
+   [![𝐓𝐄𝐀𝐌 RAXX](https://github-stats-alpha.vercel.app/api?username=Akshayxt "Akshayxt")](https://github-stats-alpha.vercel.app/api?username=Akshayxt "Akshayxt")
                                                           
   
 <img src="https://readme-typing-svg.herokuapp.com?color=00FF00&width=420&lines=🌿+𝐓𝐄𝐀𝐌+XT+🌱">
